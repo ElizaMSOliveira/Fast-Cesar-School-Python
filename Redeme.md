@@ -1,0 +1,1 @@
+Contem todos os execicios feitos no curso Fast - Aceleração de Carreira da Cesar School
